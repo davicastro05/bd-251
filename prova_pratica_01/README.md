@@ -1,1 +1,1 @@
-file:///C:/Users/mille/Downloads/Screenshot%20(15).pdf
+https://ibb.co/1tbY6T10
